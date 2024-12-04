@@ -1,0 +1,7 @@
+"# UJIANKENAIKANLVEL2024" 
+"# UJIANKENAIKANLVEL2024" 
+"# UKAEL-2024" 
+"# UjianKenaikanLevel" 
+"# UKLKE2" 
+"# UKLKE2" 
+"# Tix.id-breaking" 
